@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Nutcracker1965
+- 👀 I’m interested in 3d printing
+- 🌱 I’m currently learning cura
+- 📫 How to reach me pm me on here
